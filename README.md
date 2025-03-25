@@ -4,7 +4,7 @@ Hi, this is Joan, I'm a Data Manager who has been working for different companie
 
 # 🚴‍♂️ Bonus
 
-I love practicing sports, listening Hard Rock, travelling and creating nice videos about it.
+I love practicing sports, listening Hard Rock, travelling and make nice videos about it.
 
 # 💻 Stay Connected
 
