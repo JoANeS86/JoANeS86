@@ -1,6 +1,6 @@
 # 😎 Me
 
-Hi, this is Joan, I'm a Data Manager who has been working for different companies during the last years, covering tasks like Data Integration, Data Quality, Reporting or Processes Development.
+Hi, this is Joan, I'm a Data Anlyst who has been working for different companies during the last years, covering tasks like Data Integration, Data Quality, Reporting or Processes Development.
 
 # 🚴‍♂️ Bonus
 
